@@ -10,7 +10,7 @@ Born as a Twin 👯
 
 - 🌱 I’m currently **Persuing MCA**
 
-<img align="right" alt="Coding" width="400" src="https://tenor.com/view/girl-hacker-hacker-girl-code-code-girl-gif-16793279">
+<img align="right" alt="Coding" width="400" src="https://tenor.com/view/girl-hacker-hacker-girl-code-code-girl-gif-16793279.gif">
 
 - 💬 No ~~dates~~ 👯 **Only Updates 🤝**
 
