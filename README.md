@@ -15,7 +15,6 @@ Born as a Twin 👯
 - 💬 No ~~dates~~ 👯 **Only Updates 🤝**
 
 - 📫 How to reach me **e_akshaya@yahoo.com**
-- Drop ✉️ here also [https://www.instagram.com/avo_kyat_oh_/](https://www.instagram.com/avo_kyat_oh_/)
 
 - ⚡ Fun fact **I will do so much stuff 👨‍💻 Later I will do so much stuff👨‍💻 Eventually I will do so much stuff👨‍💻 Oh !No😵**
 
