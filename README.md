@@ -10,7 +10,7 @@ Born as a Twin 👯
 
 - 🌱 I’m currently **Persuing MCA**
 
-<img align="right" alt="Coding" width="400" src="https://media.giphy.com/media/hS6bwzYfZrIkJM9lnm/giphy.gif">
+<img align="right" alt="Coding" width="400" src="https://media.giphy.com/media/L3EhThOkMWnzynDqCP/giphy.gif">
 
 - 💬 No ~~dates~~ 👯 **Only Updates 🤝**
 
