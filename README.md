@@ -16,7 +16,7 @@ Born as a Twin 👯
 
 - 📫 How to reach me **e_akshaya@yahoo.com**
 
-- ⚡ Fun fact **I will do so much stuff 👨‍💻 Later I will do so much stuff👨‍💻 Eventually I will do so much stuff👨‍💻 Oh !No😵**
+- ⚡ *😵**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
