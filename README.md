@@ -4,7 +4,7 @@
 Born as a Twin 👯
 - Another Trip around Sun🌞 June:18
 
-<p align="left"> <a href="https://twitter.com/avo_kyat_oh_" target="blank"><img src="https://img.shields.io/twitter/follow/avo_kyat_oh_?logo=twitter&style=for-the-badge" alt="avo_kyat_oh_" /></a> </p>
+<p align="left"> <a href="https://twitter.com/OxyKyat" target="blank"><img src="https://img.shields.io/twitter/follow/OxyKyat?logo=twitter&style=for-the-badge" alt="OxyKyat" /></a> </p>
 
 - 🌱 Completed Bachelor degree in **Computer Science**
 
