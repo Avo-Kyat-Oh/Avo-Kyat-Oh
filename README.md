@@ -14,7 +14,7 @@ Born as a Twin 👯
 
 - 💬 No ~~dates~~ 👯 **Only Updates 🤝**
 
-- 📫 How to reach me **e_akshaya@yahoo.com**
+- 📫 How to reach me **akshayaeroth@gmail.com**
 
 - ⚡ 
 
