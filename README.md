@@ -1,22 +1,20 @@
 
 <h1 align="center">Hi 👋, I'm Akshaya E</h1>
-<h3 align="center">A passionate Student👩‍💻 from India</h3>
-Born as a Twin 👯
-- Another Trip around Sun🌞 June:18
+<h3 align="center">I'm a data-driven professional with 1.6 years of experience at Amazon, specializing in SQL, Python, and Microsoft Excel. I excel in managing large datasets, ensuring data accuracy, and providing insights to support decision-making. With skills in Power BI, I present complex data clearly and effectively. I'm now seeking opportunities in Data Engineering to apply my expertise and drive data-driven solutions. Let's connect</h3>
+
 
 <p align="left"> <a href="https://twitter.com/OxyKyat" target="blank"><img src="https://img.shields.io/twitter/follow/OxyKyat?logo=twitter&style=for-the-badge" alt="OxyKyat" /></a> </p>
 
-- 🌱 Completed Bachelor degree in **Computer Science**
+- 🌱 Completed Masters degree in **Computer Applications**
 
-- 🌱 I’m currently **Persuing MCA**
+  
 
 <img align="right" alt="Coding" width="400" src="https://media.giphy.com/media/L3EhThOkMWnzynDqCP/giphy.gif">
 
-- 💬 No ~~dates~~ 👯 **Only Updates 🤝**
 
 - 📫 How to reach me **akshayaeroth@gmail.com**
 
-- ⚡ Cyber Security Enthusiasts 
+
 
 
 
